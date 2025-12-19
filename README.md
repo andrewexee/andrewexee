@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 🤏 About Me:
 Algo sobre mí....  <br>🎓 Programador en proceso ⌛🔥 <br>👨‍🎓 Estudiando CFGS/DAM <br>🎮 Game enjoyer 🗣💎
 
 
